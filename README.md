@@ -1,4 +1,5 @@
 # Activity5-GarduqueJA
 
-![][Capture.JPG]
-![][Capture1.JPG]
+![](Capture.JPG)
+
+![](Capture1.JPG)

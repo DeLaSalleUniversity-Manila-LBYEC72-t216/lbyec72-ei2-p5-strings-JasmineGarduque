@@ -21,3 +21,29 @@
 ![](Capture9.JPG)
 
 ![](Capture10.JPG)
+
+ACTIVITY 8 - STUDENT INFORMATION DATABASE
+
+![](Capture11.JPG)
+
+![](Capture12.JPG)
+
+![](Capture13.JPG)
+
+![](Capture14.JPG)
+
+![](Capture15.JPG)
+
+![](Capture16.JPG)
+
+![](Capture17.JPG)
+
+![](Capture18.JPG)
+
+![](Capture19.JPG)
+
+![](Capture20.JPG)
+
+![](Capture21.JPG)
+
+![](Capture22.JPG)
